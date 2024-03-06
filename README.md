@@ -1,10 +1,10 @@
-Victor Wiebe
-Address: San Sai, Chiang Mai, Thailand
-Phone #: +66 65 519 6801
-Email: vwiebe@gmail.com
-
-Age: 35 	  	Nationality: Canadian	 		 Faith: Christian
-
+Victor Wiebe<br/>
+Address: San Sai, Chiang Mai, Thailand<br/>
+Phone #: +66 65 519 6801<br/>
+Email: vwiebe@gmail.com<br/>
+<br/>
+Age: 35 	  	Nationality: Canadian	 		 Faith: Christian<br/>
+<br/>
 # > Education
 * High School Equivalent – Ontario, Canada – 2011
 * TEFL Certification – University of Toronto – 2022
