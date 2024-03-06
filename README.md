@@ -1,4 +1,4 @@
-![Gemini_Generated_Image](https://github.com/ryanpeterson5/ryanpeterson5.github.io/assets/162402859/bec0a8b5-0312-42be-8734-bdd37f44118b)
+<img src="https://github.com/ryanpeterson5/ryanpeterson5.github.io/assets/162402859/bec0a8b5-0312-42be-8734-bdd37f44118b" align="right" width="30%/>
 
 Victor Wiebe<br/>
 Address: San Sai, Chiang Mai, Thailand<br/>
