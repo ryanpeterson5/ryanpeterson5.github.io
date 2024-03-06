@@ -1,6 +1,9 @@
+![Gemini_Generated_Image](https://github.com/ryanpeterson5/ryanpeterson5.github.io/assets/162402859/bec0a8b5-0312-42be-8734-bdd37f44118b)
+
 Victor Wiebe<br/>
 Address: San Sai, Chiang Mai, Thailand<br/>
 Phone #: +66 65 519 6801<br/>
+
 Email: vwiebe@gmail.com<br/>
 <br/>
 Age: 35 	  	Nationality: Canadian	 		 Faith: Christian<br/>
