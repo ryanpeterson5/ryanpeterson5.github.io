@@ -6,7 +6,7 @@ Phone #: +66 65 519 6801<br/>
 
 Email: vwiebe@gmail.com<br/>
 <br/>
-Age: 35 	  	Nationality: Canadian	 		 Faith: Christian<br/>
+Age: 35 	*  	Nationality: Canadian	 	*	 Faith: Christian<br/>
 <br/>
 ># Education
 * High School Equivalent – Ontario, Canada – 2011
@@ -14,9 +14,14 @@ Age: 35 	  	Nationality: Canadian	 		 Faith: Christian<br/>
 * B.A. English Communication – Payap University, Thailand – 2021 - Present
 
 ># Work Experience<br/>
-While most of my career work experience has been in the construction industry, I have had the opportunity to engage in other experience that helped shape my abilities in public speaking and teaching. Since 2006 I have been involved in teaching in a church setting, teaching children from ages 5-13 and also teaching an adult Bible class for about 6 years.
+Thus far, most of my work experience has been in the construction industry, both on site building construction,<br/> 
+and in-shop fabrication of building materials. My experience has also included training in and implimentation of health and safety<br/>
+protocals. <br/>
+<br/>
+In the last few years I have directed my focus on furthering my education and experience in English language teaching.<br/> 
+So far, my experience has been in volunteer positions teaching English at an elementary level.
 
-># Faith<br/>
-While I grew up in a wonderful Christian home, it wasn’t until I was in my teens that I was converted. Although through my upbringing I had been kept from many harmful influences, the change in my heart was significant and lasting. I came to know Jesus Christ in a personal way, and it has filled my life with joy and peace, and His love is continually transforming my life.
-I believe that the Bible is the true word of God and in doctrines commonly accepted by Christians; the Trinity, salvation by faith in Christ for the remission of sins and receiving the Holy Spirit. I believe that a Christian will walk in holiness by the grace of God and throughout their lives they will grow into the likeness of Jesus.
-The church that I am a part of is not associated with a denomination but believes in the things mentioned above.
+># Vision<br/>
+With a degree in English Communication and certification in TEFL, I hope to be able to assist those in rural areas who desire<br/> 
+to benefit their communities through raising the standard of education. By equipping local people and assisting them<br/>
+in ways they feel are needed, I hope to bolster local potential and realize local dreams for a better future.
