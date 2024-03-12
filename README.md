@@ -6,7 +6,7 @@ Phone #: +66 65 519 6801<br/>
 
 Email: vwiebe@gmail.com<br/>
 <br/>
-Age: 35 	*  	Nationality: Canadian	 	*	 Faith: Christian<br/>
+Age: 35 	*  	Nationality: Canadian	 	*	 Expertise: Intercultural Communication, Teaching<br/>
 <br/>
 ># Education
 * High School Equivalent – Ontario, Canada – 2011
