@@ -26,7 +26,7 @@ From a young age I have had an interest in other countries and cultures. At the 
 In the years that followed I made trips to Iceland, China, Malaysia, Nepal, and other Asian countries. My experiences in these places<br/>
 broadened my horizons and shaped my outlook on life. I came to realize that there were different ways of looking at life and at the world<br/>
 that differed from the way I was used to seeing things. These perspectives have helped me to see the world as a beautiful tapestry<br/>
-and that together with other cultures we each enrich the world in our own way. It has been an amazing experience to work together with<b/>
+and that together with other cultures we each enrich the world in our own way. It has been an amazing experience to work together with<br/>
 people from many backgrounds and to learn to love and appreciate their unique contribution to the whole of humankind.<br/>
 <br/>
 I believe that these experiences and new outlook help me to be able to better build relationships and relate to people from other cultures.<br/>
